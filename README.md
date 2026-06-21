@@ -1,2 +1,2 @@
-# A-kapcsolat-antropol-gi-ja
+# A-kapcsolat-antropologiaja
 A birtoklástól a jelenlétig 
